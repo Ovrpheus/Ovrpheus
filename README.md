@@ -22,6 +22,15 @@ for any questions , my [guestbook](https://ovrpheus.123guestbook.com/) is right 
 </h5>  
 
 ***
+<p align = "center">
+I love my friends !!
+<p>
+<p align = "center">
+Rowan , Misha , Cerb , Suga , Arkadiusz , Vin , Renny , Kiri , Shu , Rose , Iza 
+<p>
+<p align = "center">
+and anyone else I am friends with on pt/my github mutuals !! <3 /p
+<p>
 <p align ="center">
 <img src="https://ouija.crd.co/assets/images/gallery21/45b8bc15.png?v=b8c53f22"/><img src="https://ouija.crd.co/assets/images/gallery21/c9a8d472.gif?v=b8c53f22"/><img src="https://ouija.crd.co/assets/images/gallery21/45b8bc15.png?v=b8c53f22"/>
 </p>
