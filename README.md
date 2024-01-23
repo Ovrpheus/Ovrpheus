@@ -37,4 +37,4 @@ and anyone else I am friends with on pt/my github mutuals !! <3 /p
 
 crd to [ouija](https://ouija.crd.co/#) for dividers n stamps , [tenor](https://tenor.com/pl/view/herrscher-of-humanity-elysia-because-of-you-flamechasers-honkai-gif-26463711) for gif >_<
 
-AND kinda [shin](https://github.com/neuvilIette) for insp >_<
+AND kinda [shig](https://github.com/neuvilIette) for insp >_<
