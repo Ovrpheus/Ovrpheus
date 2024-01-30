@@ -26,7 +26,7 @@ for any questions , my [guestbook](https://ovrpheus.123guestbook.com/) is right 
 I love my friends !!
 <p>
 <p align = "center">
-Rowan , Misha , Cerb , Suga , Arkadiusz , Vin , Renny , Kiri , Shu , Rose , Iza 
+Rowan , Misha , Cerb , Suga , Shig , Arkadiusz , Vin , Renny , Kiri , Shu , Rose , Iza  
 <p>
 <p align = "center">
 and anyone else I am friends with on pt/my github mutuals !! <3 /p
