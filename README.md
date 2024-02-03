@@ -15,6 +15,8 @@ Orpheus . ✧. he/him . ⊹ polish
 please , interact with me !! I don't bite !
 
 for any questions , my [guestbook](https://ovrpheus.123guestbook.com/) is right here , or just check [rentry](https://rentry.co/biilian) !
+
+also reccommend to check my [strawpage](https://wipyay.straw.page/) for more specifics :3 !
 </h4> 
 
 <h5 align="center">
