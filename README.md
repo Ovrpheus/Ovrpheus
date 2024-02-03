@@ -32,7 +32,7 @@ Rowan , Misha , Cerb , Suga , Shig , Arkadiusz , Vin , Renny , Kiri , Shu , Rose
 and anyone else I am friends with on pt/my github mutuals !! <3 /p
 <p>
 <p align ="center">
-<img src="https://ouija.crd.co/assets/images/gallery21/45b8bc15.png?v=b8c53f22"/><img src="https://ouija.crd.co/assets/images/gallery21/c9a8d472.gif?v=b8c53f22"/><img src="https://ouija.crd.co/assets/images/gallery21/45b8bc15.png?v=b8c53f22"/>
+<img src="https://ouija.crd.co/assets/images/gallery12/a916b736.png?v=b8c53f22"/><img src="https://ouija.crd.co/assets/images/gallery09/b9ad7c53.gif?v=b8c53f22"/><img src="https://ouija.crd.co/assets/images/gallery12/a916b736.png?v=b8c53f22"/>
 </p>
 
 crd to [ouija](https://ouija.crd.co/#) for dividers n stamps , [cirrus](https://www.tumblr.com/cirrusism) for graphics >_<
