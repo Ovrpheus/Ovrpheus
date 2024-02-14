@@ -39,6 +39,6 @@ and anyone else I am friends with on pt/my github mutuals !! <3 /p
 <img src="https://ouija.crd.co/assets/images/gallery21/45b8bc15.png?v=b8c53f22"/> <img src="https://ouija.crd.co/assets/images/gallery21/c9a8d472.gif?v=b8c53f22"/> <img src="https://ouija.crd.co/assets/images/gallery21/45b8bc15.png?v=b8c53f22"/>
 </p>
 
-crd to [ouija](https://ouija.crd.co/#) for dividers n stamps , [dizzy](https://www.tumblr.com/dizzy-lights) for graphics >_<
+crd to [ouija](https://ouija.crd.co/#) for dividers n stamps , [hallowed](https://www.tumblr.com/halloweddoll) for graphics >_<
 
 AND kinda [shig](https://github.com/neuvilIette) for insp >_<
