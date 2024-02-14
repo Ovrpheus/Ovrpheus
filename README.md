@@ -3,14 +3,14 @@
   
 [' ' Stay with me . . As we cross the empty skies . . Come sail with me . ' '](https://open.spotify.com/track/4FEr6dIdH6EqLKR0jB560J?si=0b0166967c964821)
 <h5 align="center">
-<img src="https://watermelon.crd.co/assets/images/gallery16/f423841a.gif?v=2a41aca3"/><img src="https://watermelon.crd.co/assets/images/gallery16/f423841a.gif?v=2a41aca3"/><img src="https://watermelon.crd.co/assets/images/gallery16/f423841a.gif?v=2a41aca3"/>
+<img src="https://ouija.crd.co/assets/images/gallery04/ff598c17.png?v=b8c53f22"/><img src="https://ouija.crd.co/assets/images/gallery04/ff598c17.png?v=b8c53f22"/><img src="https://ouija.crd.co/assets/images/gallery04/ff598c17.png?v=b8c53f22"/>
 </h5>  
 
 <h4 align="center">
 Orpheus . ✧. he/him . ⊹ polish
 </h4> 
 <h5 align="center">
-<img src="https://media.discordapp.net/attachments/1010223180603994204/1207352965560799242/tumblr_f4e8a8b3ccbf121db0948722d7b846f9_c33e23fd_1280_1_1.png?ex=65df5612&is=65cce112&hm=d676cf3fcd0efd89b2e9cfd2389248c24426856e3acc34a86b7e31541c1022e2&=&format=webp&quality=lossless"/>
+<img src="https://64.media.tumblr.com/57992f925b7ca6ce38f09e67a57c0629/f57053bd54adfef8-50/s500x750/84ae9b94e89f0c4cc05a52bc5acac65381997575.gifv"/>
 </h5>  
 <h4 align="center">
 
@@ -22,7 +22,7 @@ also reccommend to check my [strawpage](https://wipyay.straw.page/) for more spe
 </h4> 
 
 <h5 align="center">
-<img src="https://watermelon.crd.co/assets/images/gallery16/f423841a.gif?v=2a41aca3"/><img src="https://watermelon.crd.co/assets/images/gallery16/f423841a.gif?v=2a41aca3"/><img src="https://watermelon.crd.co/assets/images/gallery16/f423841a.gif?v=2a41aca3"/>
+<img src="https://ouija.crd.co/assets/images/gallery04/ff598c17.png?v=b8c53f22"/><img src="https://ouija.crd.co/assets/images/gallery04/ff598c17.png?v=b8c53f22"/><img src="https://ouija.crd.co/assets/images/gallery04/ff598c17.png?v=b8c53f22"/>
 </h5>  
 
 ***
@@ -36,7 +36,7 @@ Rowan ♡ , Mati ♡ , Suga ♡ , Shig , Vin , Renny ♡♡ , Kiri ♡ , Shu ♡
 and anyone else I am friends with on pt/my github mutuals !! <3 /p
 <p>
 <p align ="center">
-<img src="https://64.media.tumblr.com/2553005e49eb0c87e3dbfabfe19de491/2aad1041637130ed-cf/s250x400/f565e7890016a0c387d9251c55d632b6a991bb9c.gifv"/> <img src="https://ouija.crd.co/assets/images/gallery14/22362e06.gif?v=b8c53f22"/> <img src="https://64.media.tumblr.com/2553005e49eb0c87e3dbfabfe19de491/2aad1041637130ed-cf/s250x400/f565e7890016a0c387d9251c55d632b6a991bb9c.gifv"/>
+<img src="https://ouija.crd.co/assets/images/gallery21/45b8bc15.png?v=b8c53f22"/> <img src="https://ouija.crd.co/assets/images/gallery21/c9a8d472.gif?v=b8c53f22"/> <img src="https://ouija.crd.co/assets/images/gallery21/45b8bc15.png?v=b8c53f22"/>
 </p>
 
 crd to [ouija](https://ouija.crd.co/#) for dividers n stamps , [dizzy](https://www.tumblr.com/dizzy-lights) for graphics >_<
