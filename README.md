@@ -1,7 +1,7 @@
 ***
 <h5 align="center">
   
-[' ' Stay with me . . As we cross the empty skies . . Come sail with me . ' '](https://open.spotify.com/track/4FEr6dIdH6EqLKR0jB560J?si=0b0166967c964821)
+<img src="https://ouija.crd.co/assets/images/gallery20/596c2c04.gif?v=b8c53f22"/> [' ' Tell you how I felt . . Sugar coated melting in your mouth . . ' '](https://open.spotify.com/track/6UFivO2zqqPFPoQYsEMuCc?si=e0ef57f06c85468e) <img src="https://ouija.crd.co/assets/images/gallery20/596c2c04.gif?v=b8c53f22"/>
 <h5 align="center">
 <img src="https://ouija.crd.co/assets/images/gallery04/ff598c17.png?v=b8c53f22"/><img src="https://ouija.crd.co/assets/images/gallery04/ff598c17.png?v=b8c53f22"/><img src="https://ouija.crd.co/assets/images/gallery04/ff598c17.png?v=b8c53f22"/>
 </h5>  
@@ -14,11 +14,11 @@ Orpheus . ✧. he/him . ⊹ polish
 </h5>  
 <h4 align="center">
 
-feel free to int , unless my user states otherwise !
+feel free to int , unless my user states otherwise ! <img src="https://watermelon.crd.co/assets/images/gallery03/2acfbef7.gif?v=2a41aca3"/>
 
 for any questions , my [guestbook](https://ovrpheus.123guestbook.com/) is right here , or just check [rentry](https://rentry.co/biilian) !
 
-also reccommend to check my [strawpage](https://wipyay.straw.page/) for more specifics :3 !
+also reccommend to check my [strawpage](https://wipyay.straw.page/) for more specifics :3 ! <img src="https://watermelon.crd.co/assets/images/gallery03/f2f64d12.gif?v=2a41aca3"/>
 </h4> 
 
 <h5 align="center">
@@ -27,7 +27,7 @@ also reccommend to check my [strawpage](https://wipyay.straw.page/) for more spe
 
 ***
 <p align = "center">
-I love my friends !!
+I love my friends !! <img src="https://watermelon.crd.co/assets/images/gallery03/eca650cb.gif?v=2a41aca3"/>
 <p>
 <p align = "center">
 Rowan ♡ , Mati ♡ , Suga ♡ , Shig , Vin , Renny ♡♡ , Kiri ♡ , Shu ♡ , Miyu ♡ , Rose , Iza 
