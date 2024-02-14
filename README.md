@@ -10,7 +10,7 @@
 Orpheus . ✧. he/him . ⊹ polish
 </h4> 
 <h5 align="center">
-<img src="https://media.discordapp.net/attachments/1010223180603994204/1207350443450179645/tumblr_f4e8a8b3ccbf121db0948722d7b846f9_c33e23fd_1280_1.png?ex=65df53b9&is=65ccdeb9&hm=2aec0ca6dd600ca5ac74fb4c2835eda17e6d6298c158b654122ee6d4d0eabb3e&=&format=webp&quality=lossless"/>
+<img src="https://media.discordapp.net/attachments/1010223180603994204/1207352965560799242/tumblr_f4e8a8b3ccbf121db0948722d7b846f9_c33e23fd_1280_1_1.png?ex=65df5612&is=65cce112&hm=d676cf3fcd0efd89b2e9cfd2389248c24426856e3acc34a86b7e31541c1022e2&=&format=webp&quality=lossless"/>
 </h5>  
 <h4 align="center">
 
