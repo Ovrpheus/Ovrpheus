@@ -30,7 +30,7 @@ also reccommend to check my [strawpage](https://wipyay.straw.page/) for more spe
 I love my friends !! <img src="https://watermelon.crd.co/assets/images/gallery15/b0ce601f.gif?v=2a41aca3"/>
 <p>
 <p align = "center">
-Rowan ♡ , Mati ♡ , Suga ♡ , Machi , Shig , Vin , Renny ♡♡ , Kiri ♡ , Shu ♡ , Miyu ♡ , Rose 
+Rowan ♡♡ , Mati ♡ , Suga ♡ , Machi ♡♡ , Shig ♡ , Vin , Renny ♡♡ , Kiri ♡ , Shu ♡ , Miyu ♡ , Rose 
 <p>
 <p align = "center">
 and anyone else I am friends with on pt/my github mutuals !! <3 /p
