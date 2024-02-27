@@ -3,7 +3,7 @@
   
 <img src="https://goldenkamuy.crd.co/assets/images/gallery18/b9131a6b.gif?v=53e72adc"/> [' ' Tell you how I felt . . Sugar coated melting in your mouth . . ' '](https://open.spotify.com/track/6UFivO2zqqPFPoQYsEMuCc?si=e0ef57f06c85468e) <img src="https://goldenkamuy.crd.co/assets/images/gallery18/b9131a6b.gif?v=53e72adc"/>
 <h5 align="center">
-<img src="https://goldenkamuy.crd.co/assets/images/gallery03/3b9ad5a0.gif?v=53e72adc"/><img src="https://goldenkamuy.crd.co/assets/images/gallery03/3b9ad5a0.gif?v=53e72adc"/><img src="https://goldenkamuy.crd.co/assets/images/gallery03/3b9ad5a0.gif?v=53e72adc"/>
+<img src="https://goldenkamuy.crd.co/assets/images/gallery03/3b9ad5a0.gif?v=53e72adc"/><img src="https://goldenkamuy.crd.co/assets/images/gallery03/3b9ad5a0.gif?v=53e72adc"/>
 </h5>  
 
 <h4 align="center">
@@ -22,7 +22,7 @@ also reccommend to check my [strawpage](https://wipyay.straw.page/) for more spe
 </h4> 
 
 <h5 align="center">
-<img src="https://goldenkamuy.crd.co/assets/images/gallery03/3b9ad5a0.gif?v=53e72adc"/><img src="https://goldenkamuy.crd.co/assets/images/gallery03/3b9ad5a0.gif?v=53e72adc"/><img src="https://goldenkamuy.crd.co/assets/images/gallery03/3b9ad5a0.gif?v=53e72adc"/>
+<img src="https://goldenkamuy.crd.co/assets/images/gallery03/3b9ad5a0.gif?v=53e72adc"/><img src="https://goldenkamuy.crd.co/assets/images/gallery03/3b9ad5a0.gif?v=53e72adc"/>
 </h5>  
 
 ***
