@@ -1,33 +1,33 @@
 ***
 <h5 align="center">
   
-<img src="https://watermelon.crd.co/assets/images/gallery15/8c676890.gif?v=2a41aca3"/> [' ' Tell you how I felt . . Sugar coated melting in your mouth . . ' '](https://open.spotify.com/track/6UFivO2zqqPFPoQYsEMuCc?si=e0ef57f06c85468e) <img src="https://watermelon.crd.co/assets/images/gallery15/8c676890.gif?v=2a41aca3"/>
+<img src="https://goldenkamuy.crd.co/assets/images/gallery18/b9131a6b.gif?v=53e72adc"/> [' ' Tell you how I felt . . Sugar coated melting in your mouth . . ' '](https://open.spotify.com/track/6UFivO2zqqPFPoQYsEMuCc?si=e0ef57f06c85468e) <img src="https://goldenkamuy.crd.co/assets/images/gallery18/b9131a6b.gif?v=53e72adc"/>
 <h5 align="center">
-<img src="https://watermelon.crd.co/assets/images/gallery16/8008e055.png?v=2a41aca3"/><img src="https://watermelon.crd.co/assets/images/gallery16/8008e055.png?v=2a41aca3"/><img src="https://watermelon.crd.co/assets/images/gallery16/8008e055.png?v=2a41aca3"/>
+<img src="https://goldenkamuy.crd.co/assets/images/gallery03/3b9ad5a0.gif?v=53e72adc"/><img src="https://goldenkamuy.crd.co/assets/images/gallery03/3b9ad5a0.gif?v=53e72adc"/><img src="https://goldenkamuy.crd.co/assets/images/gallery03/3b9ad5a0.gif?v=53e72adc"/>
 </h5>  
 
 <h4 align="center">
 Orpheus . ✧. he/him . ⊹ polish
 </h4> 
 <h5 align="center">
-<img src="https://64.media.tumblr.com/7ac5bbd6781d1a8d218395c14401998a/81b5a1d52a571cd0-b9/s1280x1920/92cd6a7120265e43ac6426c78c35dd6301420792.gifv"/>
+<img src="https://64.media.tumblr.com/0fda39f502f481680152b8482560c8ff/a786fb71e4bef6d1-cb/s400x600/f81bddabbe14fc834fdc0d72421156c7c1c96ba0.gifv"/>
 </h5>  
 <h4 align="center">
 
-feel free to int , unless my user states otherwise ! <img src="https://watermelon.crd.co/assets/images/gallery15/bbc2d17f.gif?v=2a41aca3"/>
+feel free to int , unless my user states otherwise ! <img src="https://goldenkamuy.crd.co/assets/images/gallery17/7b56d685.gif?v=53e72adc"/>
 
 for any questions , my [guestbook](https://ovrpheus.123guestbook.com/) is right here , or just check [rentry](https://rentry.co/biilian) !
 
-also reccommend to check my [strawpage](https://wipyay.straw.page/) for more specifics :3 ! <img src="https://watermelon.crd.co/assets/images/gallery15/7522b10b.gif?v=2a41aca3"/>
+also reccommend to check my [strawpage](https://wipyay.straw.page/) for more specifics :3 ! <img src="https://goldenkamuy.crd.co/assets/images/gallery17/ef3f964a.gif?v=53e72adc"/>
 </h4> 
 
 <h5 align="center">
-<img src="https://watermelon.crd.co/assets/images/gallery16/8008e055.png?v=2a41aca3"/><img src="https://watermelon.crd.co/assets/images/gallery16/8008e055.png?v=2a41aca3"/><img src="https://watermelon.crd.co/assets/images/gallery16/8008e055.png?v=2a41aca3"/>
+<img src="https://goldenkamuy.crd.co/assets/images/gallery03/3b9ad5a0.gif?v=53e72adc"/><img src="https://goldenkamuy.crd.co/assets/images/gallery03/3b9ad5a0.gif?v=53e72adc"/><img src="https://goldenkamuy.crd.co/assets/images/gallery03/3b9ad5a0.gif?v=53e72adc"/>
 </h5>  
 
 ***
 <p align = "center">
-I love my friends !! <img src="https://watermelon.crd.co/assets/images/gallery15/b0ce601f.gif?v=2a41aca3"/>
+I love my friends !! <img src="https://goldenkamuy.crd.co/assets/images/gallery17/51d228d2.gif?v=53e72adc"/>
 <p>
 <p align = "center">
 Rowan ♡♡ , Mati ♡ , Suga ♡ , Machi ♡♡ , Shig ♡ , Vin , Renny ♡♡ , Kiri ♡ , Shu ♡ , Miyu ♡ , Rose 
@@ -36,7 +36,7 @@ Rowan ♡♡ , Mati ♡ , Suga ♡ , Machi ♡♡ , Shig ♡ , Vin , Renny ♡�
 and anyone else I am friends with on pt/my github mutuals !! <3 /p
 <p>
 <p align ="center">
-<img src="https://ouija.crd.co/assets/images/gallery18/e175b5f3.png?v=b8c53f22"/> <img src="https://ouija.crd.co/assets/images/gallery17/fea0bc42.png?v=b8c53f22"/> <img src="https://ouija.crd.co/assets/images/gallery18/e175b5f3.png?v=b8c53f22"/>
+<img src="https://goldenkamuy.crd.co/assets/images/gallery17/a5f09830.gif?v=53e72adc"/> <img src="https://goldenkamuy.crd.co/assets/images/gallery14/344ac2f8.png?v=53e72adc"/> <img src="https://goldenkamuy.crd.co/assets/images/gallery17/a5f09830.gif?v=53e72adc"/>
 </p>
 
 crd to [ouija](https://ouija.crd.co/#) / [watermelon](https://watermelon.crd.co) for dividers n stamps , [hallowed](https://www.tumblr.com/halloweddoll) for graphics >_<
