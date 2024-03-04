@@ -27,10 +27,10 @@ also reccommend to check my [strawpage](https://wipyay.straw.page/) for more spe
 
 ***
 <p align = "center">
-I love my friends !! <img src="https://goldenkamuy.crd.co/assets/images/gallery22/ae410130.gif?v=53e72adc"/>
+I love my friends !! (not specific order unls first one) <img src="https://goldenkamuy.crd.co/assets/images/gallery22/ae410130.gif?v=53e72adc"/>
 <p>
 <p align = "center">
-Rowan ♡♡ , Suga ♡♡ , Machi ♡♡ , Renny ♡♡ , Shig ♡ , Kiri ♡ , Shu ♡ , Mati ♡ , Miyu ♡ , Vinny ♡ , Rody ♡
+Vinny ♡♡♡ , Rody ♡♡ , Rowan ♡♡ , Suga ♡♡ , Machi ♡♡ , Renny ♡♡ , Shig ♡ , Kiri ♡ , Mati ♡ , Xyo ♡ , Shu ♡ , Miyu ♡ 
 <p>
 <p align = "center">
 and anyone else I am friends with on pt/my github mutuals !! <3 /p
