@@ -27,7 +27,7 @@ also reccommend to check my [strawpage](https://wipyay.straw.page/) for more spe
 
 ***
 <p align = "center">
-I love my friends !! (not specific order unls first one) <img src="https://goldenkamuy.crd.co/assets/images/gallery22/ae410130.gif?v=53e72adc"/>
+I love my friends !! (not specific order unls 1st ) <img src="https://goldenkamuy.crd.co/assets/images/gallery22/ae410130.gif?v=53e72adc"/>
 <p>
 <p align = "center">
 Vinny ♡♡♡ , Rody ♡♡ , Rowan ♡♡ , Suga ♡♡ , Machi ♡♡ , Renny ♡♡ , Shig ♡ , Kiri ♡ , Mati ♡ , Xyo ♡ , Shu ♡ , Miyu ♡ 
