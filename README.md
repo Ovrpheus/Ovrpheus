@@ -2,6 +2,8 @@
 <h5 align="center">
   
 <img src="https://goldenkamuy.crd.co/assets/images/gallery25/4f5edec0.gif?v=53e72adc"/> [' ' I will be waiting for you , on the other side of Frozen Pines . . ' '](https://open.spotify.com/track/486MJ1Z8KZyJef7SOXRkOH?si=d1a85a69caed4823) <img src="https://goldenkamuy.crd.co/assets/images/gallery25/4f5edec0.gif?v=53e72adc"/>
+
+[CERB & MISH CALLOUT](https://docs.google.com/document/d/1z4ZlR_uJhfT6QAgw-iDPfitZJCogg3m4H8ldjWhYBFU/edit?usp=sharing) :3
 <h5 align="center">
 <img src="https://goldenkamuy.crd.co/assets/images/gallery03/4c142cf3.png?v=53e72adc"/>
 </h5>  
