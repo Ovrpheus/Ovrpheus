@@ -9,7 +9,7 @@
 </h5>  
 
 <h4 align="center">
-Orpheus . ✧. he/him . ⊹ polish
+Orpheus . — he/him — . polish
 </h4> 
 <h5 align="center">
 <img src="https://64.media.tumblr.com/91a3c5401524769442826f054c9d0156/33e45473835a4979-14/s540x810/2ed9b7024c79bfb780c2b4663f9240b5c162eb63.gifv"/>
@@ -18,9 +18,7 @@ Orpheus . ✧. he/him . ⊹ polish
 
 feel free to int , unless my user states otherwise ! <img src="https://64.media.tumblr.com/72ce3df652cb02da74f606171b6c9d40/df9993671d388a92-c9/s75x75_c1/aed97fbd1064eb3886ab3f78249c8ebb23da7533.gifv"/>
 
-for any questions , my [guestbook](https://ovrpheus.123guestbook.com/) is right here , or just check [rentry](https://rentry.co/biilian) !
-
-also reccommend to check my [strawpage](https://wipyay.straw.page/) for more specifics :3 ! <img src="https://vermillion.drr.ac/assets/images/gallery01/0323be38.gif?v=7ca7602c"/>
+[rentry](https://rentry.co/biilian)ㅤㅤㅤㅤ ㅤㅤㅤ[guestbook](https://ovrpheus.123guestbook.com/)ㅤㅤㅤㅤ ㅤㅤㅤ[urls](https://rentry.co/ovrpheus)
 </h4> 
 
 <h5 align="center">
@@ -28,15 +26,6 @@ also reccommend to check my [strawpage](https://wipyay.straw.page/) for more spe
 </h5>  
 
 ***
-<p align = "center">
-I love my friends !! (not specific order unls 1st ) <img src="https://cdn.discordapp.com/emojis/1148420753780375563.gif?size=96&quality=lossless"/>
-<p>
-<p align = "center">
-Vinny ♡♡♡ , Rody ♡♡ , Rowan ♡♡ , Suga ♡♡ , Machi ♡♡ , Renny ♡♡ , Shig ♡ , Kiri ♡ , Mati ♡ , Xyo ♡ , Shu ♡ , Miyu ♡ , Kiki ♡ , Noven ♡
-<p>
-<p align = "center">
-and anyone else I am friends with on pt/my github mutuals !! <3 /p
-<p>
 <p align ="center">
 <img src="https://ouija.crd.co/assets/images/gallery12/9f207742.gif?v=b7df7a50"/>
 </h5>  
