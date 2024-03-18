@@ -32,5 +32,3 @@ feel free to int , unless my user states otherwise ! <img src="https://64.media.
 </p>
 
 crd to [ouija](https://ouija.crd.co/#) / [vamp](https://rentry.co/vamptism) for dividers n stamps , [rotten](https://www.tumblr.com/rottenparasite/search/ada) for graphics >_<
-
-AND kinda [shig](https://github.com/neuvilIette) for insp >_<
