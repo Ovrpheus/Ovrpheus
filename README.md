@@ -4,6 +4,8 @@
 <img src="https://cdn.discordapp.com/emojis/1148420707009691738.gif?size=96&quality=lossless"/> [' ' I will be waiting for you , on the other side of Frozen Pines . . ' '](https://open.spotify.com/track/486MJ1Z8KZyJef7SOXRkOH?si=d1a85a69caed4823) <img src="https://cdn.discordapp.com/emojis/1148420707009691738.gif?size=96&quality=lossless"/>
 
 [CERB & MISH CALLOUT](https://docs.google.com/document/d/1z4ZlR_uJhfT6QAgw-iDPfitZJCogg3m4H8ldjWhYBFU/edit?usp=sharing) :3
+
+^ update soon ;3 need more proof atp
 <h5 align="center">
 <img src="https://64.media.tumblr.com/4cb467adf5421494a6c4929f7a6db8fd/166344cc9954bba2-e0/s540x810/727da5780341da9e1ec4a751d5960f55ac0604d6.gifv"/>
 </h5>  
