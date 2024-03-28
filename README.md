@@ -11,7 +11,7 @@
 </h5>  
 
 <h4 align="center">
-Orpheus . — he/him — . polish
+Orpheusㅤㅤhe/himㅤㅤpolish
 </h4> 
 <h5 align="center">
 <img src="https://64.media.tumblr.com/91a3c5401524769442826f054c9d0156/33e45473835a4979-14/s540x810/2ed9b7024c79bfb780c2b4663f9240b5c162eb63.gifv"/>
@@ -28,9 +28,9 @@ feel free to int , unless my user states otherwise ! <img src="https://64.media.
 </h5>  
 
 ***
-<p align ="center">
-<img src="https://ouija.crd.co/assets/images/gallery12/9f207742.gif?v=b7df7a50"/>
-</h5>  
+<h5 align="center">
+  
+[helpalestine](https://arab.org/click-to-help/palestine/thank-you/)
 </p>
 
 crd to [ouija](https://ouija.crd.co/#) / [vamp](https://rentry.co/vamptism) for dividers n stamps , [rotten](https://www.tumblr.com/rottenparasite/search/ada) for graphics >_<
