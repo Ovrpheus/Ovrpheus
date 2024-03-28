@@ -1,31 +1,36 @@
 ***
 <h5 align="center">
 
-[CERB & MISH CALLOUT](https://docs.google.com/document/d/1z4ZlR_uJhfT6QAgw-iDPfitZJCogg3m4H8ldjWhYBFU/edit?usp=sharing) :3
+[CERB & MISH CALLOUT](https://docs.google.com/document/d/1z4ZlR_uJhfT6QAgw-iDPfitZJCogg3m4H8ldjWhYBFU/edit?usp=sharing) 
 
+[HELPALESTINE](https://arab.org/click-to-help/palestine/)
+
+
+<h4 align="center">    
+
+<p>
 
 <h4 align="center">
-    
-[helpalestine](https://arab.org/click-to-help/palestine/thank-you/)
-
-Orpheusㅤㅤhe/himㅤㅤpolish
+$\textcolor{grey}{𝙊𝙍𝙋𝙃𝙀𝙐𝙎}$ㅤ ㅤhe ﾉ himㅤ ㅤ $\textcolor{grey}{POLISH}$
 </h4> 
 <h5 align="center">
-<img src="https://i.postimg.cc/vHSzKzVV/IMG-8001.png"/>
+<img src="https://media.discordapp.net/attachments/910049236903657494/1222991416935055380/tumblr_69ff62a78a30c66b2d6d9a292b45610f_a6b9a2fe_1280_1.png?ex=66183a83&is=6605c583&hm=daa3d1ae36aeb11fe331038104003d0df62f42c05e25ec99ee0ed68e1bee9ce2&=&format=webp&quality=lossless"/>
 </h5>  
 <h4 align="center">
 
-feel free to int , unless my user states otherwise ! <img src="https://64.media.tumblr.com/72ce3df652cb02da74f606171b6c9d40/df9993671d388a92-c9/s75x75_c1/aed97fbd1064eb3886ab3f78249c8ebb23da7533.gifv"/>
+𝘪𝘯𝘵 𝘰𝘬 𝘶𝘯𝘭𝘴 𝘮𝘺 𝘶𝘴𝘦𝘳 𝘴𝘢𝘺𝘴 𝘰𝘵𝘩𝘦𝘳𝘸𝘪𝘴𝘦
 
-[rentry](https://rentry.co/biilian)ㅤㅤㅤㅤ ㅤㅤㅤ[guestbook](https://ovrpheus.123guestbook.com/)ㅤㅤㅤㅤ ㅤㅤㅤ[urls](https://rentry.co/ovrpheus)
+𝘵𝘰𝘯𝘦𝘵𝘢𝘨𝘴 𝘸𝘦𝘭𝘤𝘰𝘮𝘦𝘥 - 𝘣𝘢𝘥 𝘢𝘵 𝘤𝘰𝘮𝘮𝘶𝘯𝘪𝘤𝘢𝘵𝘪𝘯𝘨.
+
+[𝗥𝗘𝗡𝗧𝗥𝗬](https://rentry.co/biilian)ㅤㅤㅤㅤ ㅤㅤㅤ[𝘎𝘜𝘌𝘚𝘛𝘉𝘖𝘖𝘒](https://ovrpheus.123guestbook.com/)ㅤㅤㅤㅤ ㅤㅤㅤ[𝗨𝗥𝗟𝗦](https://rentry.co/ovrpheus)
 </h4> 
 
 <h5 align="center">
-<img src="https://64.media.tumblr.com/0ca2d1bad2af8e71e9ca15fc2e70576f/48b4b7ede78c0375-2f/s540x810/c613c4d00f76d10736dbaa81741baa654c5a4ff1.gifv"/>
+<img src="https://gifcity.carrd.co/assets/images/gallery49/ceeed9db.png?v=d32b0bb8"/>
 </h5>  
 
 ***
 <h5 align="center">
 </p>
 
-crd to [ouija](https://ouija.crd.co/#) / [vamp](https://rentry.co/vamptism) for dividers n stamps , [rotten](https://www.tumblr.com/rottenparasite/search/ada) for graphics >_<
+crd to [vamp](https://rentry.co/vamptism) for divider , [metalbody](https://www.tumblr.com/metalbody/745424568558272512/arlecchino-graphics) for graphics
