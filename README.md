@@ -18,6 +18,10 @@ $\textcolor{grey}{𝙊𝙍𝙋𝙃𝙀𝙐𝙎}$ㅤ ㅤhe ﾉ himㅤ ㅤ $\textc
 </h5>  
 <h4 align="center">
 
+<img src="https://ouija.crd.co/assets/images/gallery34/6f0fa6fb.gif?v=b7df7a50"/>   [𝘿𝙄𝙎𝘾𝙊𝙍𝘿](https://discordid.netlify.app/?id=790292650720231494) - 𝙬𝙤𝙣'𝙩 𝙖𝙘𝙘𝙚𝙥𝙩 𝙞𝙛 𝙬𝙚'𝙧𝙚 𝙣𝙤𝙩 𝙛𝙧𝙞𝙚𝙣𝙙𝙨
+
+<img src="https://64.media.tumblr.com/54c582171a45c00e36c5275497ae55ed/f68f283abcef9711-11/s75x75_c1/c4010e01c772c1c1602c3b45a3f62cab7ca2d0c1.gifv"/>
+
 𝘪𝘯𝘵 𝘰𝘬 𝘶𝘯𝘭𝘴 𝘮𝘺 𝘶𝘴𝘦𝘳 𝘴𝘢𝘺𝘴 𝘰𝘵𝘩𝘦𝘳𝘸𝘪𝘴𝘦
 
 𝘵𝘰𝘯𝘦𝘵𝘢𝘨𝘴 𝘸𝘦𝘭𝘤𝘰𝘮𝘦𝘥 - 𝘣𝘢𝘥 𝘢𝘵 𝘤𝘰𝘮𝘮𝘶𝘯𝘪𝘤𝘢𝘵𝘪𝘯𝘨.
