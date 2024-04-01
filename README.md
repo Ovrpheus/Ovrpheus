@@ -39,4 +39,4 @@ $\textcolor{grey}{𝙊𝙍𝙋𝙃𝙀𝙐𝙎}$ㅤ ㅤhe ﾉ himㅤ ㅤ $\textc
 <h5 align="center">
 </p>
 
-crd to [vamp](https://rentry.co/vamptism) for divider , [metalbody](https://www.tumblr.com/metalbody/745424568558272512/arlecchino-graphics) for graphics
+crd to [vamp](https://rentry.co/vamptism) for dividers n pixels
