@@ -14,7 +14,7 @@
 $\textcolor{grey}{𝙊𝙍𝙋𝙃𝙀𝙐𝙎}$ㅤ ㅤhe ﾉ himㅤ ㅤ $\textcolor{grey}{POLISH}$
 </h4> 
 <h5 align="center">
-<img src="https://media.discordapp.net/attachments/910049236903657494/1224285420792320000/1711962767154.png?ex=661cefa6&is=660a7aa6&hm=b073022ea12823258352c40b432a5b1e65214d5f61f8a9e15449e1176001aa14&=&format=webp&quality=lossless&width=350&height=350"/>
+<img src="https://64.media.tumblr.com/74448158a893bb2f49a75b3465a5ae44/9bee679e52f48c5d-c9/s500x750/41074d6ac0936044d4571b43a9b3d4a28e0e0a22.pnj"/>
 </h5>  
 <h4 align="center">
 
