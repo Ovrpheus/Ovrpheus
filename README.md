@@ -26,8 +26,6 @@ $\textcolor{grey}{𝙊𝙍𝙋𝙃𝙀𝙐𝙎}$ㅤ ㅤhe ﾉ himㅤ ㅤ $\textc
 
 𝘵𝘰𝘯𝘦𝘵𝘢𝘨𝘴 𝘸𝘦𝘭𝘤𝘰𝘮𝘦𝘥 - 𝘣𝘢𝘥 𝘢𝘵 𝘤𝘰𝘮𝘮𝘶𝘯𝘪𝘤𝘢𝘵𝘪𝘯𝘨.
 
-𝘱𝘭𝘴𝘱𝘭𝘴𝘱𝘭𝘴 𝘪𝘯𝘵 𝘸 𝘮𝘦𝘦 :33 𝘪𝘮 𝘯𝘰𝘵 𝘪𝘯𝘵𝘪𝘮𝘪𝘥𝘢𝘵𝘪𝘯𝘨 𝘪 𝘴𝘸𝘦𝘢𝘳𝘳𝘳
-
 [𝗥𝗘𝗡𝗧𝗥𝗬](https://rentry.co/biilian)ㅤㅤㅤㅤ ㅤㅤㅤ[𝘎𝘜𝘌𝘚𝘛𝘉𝘖𝘖𝘒](https://ovrpheus.123guestbook.com/)ㅤㅤㅤㅤ ㅤㅤㅤ[𝗨𝗥𝗟𝗦](https://rentry.co/ovrpheus)
 </h4> 
 
