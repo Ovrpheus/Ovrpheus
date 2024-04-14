@@ -14,7 +14,7 @@
 $\textcolor{grey}{𝙊𝙍𝙋𝙃𝙀𝙐𝙎}$ㅤ ㅤhe ﾉ himㅤ ㅤ $\textcolor{grey}{POLISH}$
 </h4> 
 <h5 align="center">
-<img src="https://64.media.tumblr.com/d157346ff973cdf29bcc1d5caa1cb6f3/91a08c862e9668d0-04/s2048x3072/41861185bf6e0083433941c3d424cb44c8a31936.pnj"/>
+<img src="https://64.media.tumblr.com/b771743abf7c4675bd599119b0382292/c20ad8a62d7f9ff7-46/s400x600/9b15cda72d294a6c468441dcc0de67041e1c216d.gifv"/>
 </h5>  
 <h4 align="center">
 
@@ -39,4 +39,4 @@ $\textcolor{grey}{𝙊𝙍𝙋𝙃𝙀𝙐𝙎}$ㅤ ㅤhe ﾉ himㅤ ㅤ $\textc
 
 crd to [vamp](https://rentry.co/vamptism) for dividers n pixels , [kiochisato](https://www.tumblr.com/kiochisato) graphic
 
-no sakamoto days graphics , what can i say ;(
+
