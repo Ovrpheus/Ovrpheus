@@ -11,10 +11,10 @@
 <p>
 
 <h4 align="center">
-$\textcolor{blue}{𝙊𝙍𝙋𝙃𝙀𝙐𝙎}$ㅤ ㅤhe ﾉ himㅤ ㅤ $\textcolor{grey}{POLISH}$
+$\textcolor{grey}{𝙊𝙍𝙋𝙃𝙀𝙐𝙎}$ㅤ ㅤhe ﾉ himㅤ ㅤ $\textcolor{grey}{POLISH}$
 </h4> 
 <h5 align="center">
-<img src="https://64.media.tumblr.com/351db413e51a79a41daf7941a011c496/c747e3c7b68b83bb-d5/s640x960/04ab9fa5b7433e5a189d6821453fde13a8ce0852.gifv"/>
+<img src="https://64.media.tumblr.com/9c915f8219f8488d1f91dde32ec994d5/429ac985fc6194c7-bf/s640x960/673778bf5df7b0bcebe25ba2996f91bd8a933e1e.gifv"/>
 </h5>  
 <h4 align="center">
 
@@ -22,18 +22,9 @@ $\textcolor{blue}{𝙊𝙍𝙋𝙃𝙀𝙐𝙎}$ㅤ ㅤhe ﾉ himㅤ ㅤ $\textc
 
 <img src="https://64.media.tumblr.com/54c582171a45c00e36c5275497ae55ed/f68f283abcef9711-11/s75x75_c1/c4010e01c772c1c1602c3b45a3f62cab7ca2d0c1.gifv"/>
 
-𝘪𝘯𝘵 𝘰𝘬 𝘶𝘯𝘭𝘴 𝘮𝘺 𝘶𝘴𝘦𝘳 𝘴𝘢𝘺𝘴 𝘰𝘵𝘩𝘦𝘳𝘸𝘪𝘴𝘦
-
-𝘵𝘰𝘯𝘦𝘵𝘢𝘨𝘴 𝘸𝘦𝘭𝘤𝘰𝘮𝘦𝘥 - 𝘣𝘢𝘥 𝘢𝘵 𝘤𝘰𝘮𝘮𝘶𝘯𝘪𝘤𝘢𝘵𝘪𝘯𝘨.
-
-[𝗥𝗘𝗡𝗧𝗥𝗬](https://rentry.co/biilian)ㅤㅤㅤㅤ ㅤㅤㅤ[𝘎𝘜𝘌𝘚𝘛𝘉𝘖𝘖𝘒](https://ovrpheus.123guestbook.com/)ㅤㅤㅤㅤ ㅤㅤㅤ[𝗨𝗥𝗟𝗦](https://rentry.co/ovrpheus)
+[𝗥𝗘𝗡𝗧𝗥𝗬](https://rentry.co/biilian)ㅤㅤㅤㅤ ㅤㅤ[𝘎𝘜𝘌𝘚𝘛𝘉𝘖𝘖𝘒](https://ovrpheus.123guestbook.com/)ㅤㅤㅤㅤ ㅤㅤㅤ[𝗨𝗥𝗟𝗦](https://rentry.co/ovrpheus)
 </h4> 
 
-<h5 align="center">
-<img src="https://gifcity.carrd.co/assets/images/gallery49/ceeed9db.png?v=d32b0bb8"/>
-</h5>  
-
-***
 <h5 align="center">
 </p>
 
