@@ -28,6 +28,6 @@ $\textcolor{grey}{𝙊𝙍𝙋𝙃𝙀𝙐𝙎}$ㅤ ㅤhe ﾉ himㅤ ㅤ $\textc
 <h5 align="center">
 </p>
 
-crd to [vamp](https://rentry.co/vamptism) for dividers n pixels , [kiochisato](https://www.tumblr.com/kiochisato) graphic
+crd to [vamp](https://rentry.co/vamptism) for dividers n pixels , [lavender](https://www.tumblr.com/lavendergalactic) graphic
 
 
