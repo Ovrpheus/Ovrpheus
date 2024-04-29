@@ -31,3 +31,14 @@ $\textcolor{grey}{𝙊𝙍𝙋𝙃𝙀𝙐𝙎}$ㅤ ㅤhe ﾉ himㅤ ㅤ $\textc
 crd to [lavender](https://www.tumblr.com/lavendergalactic) for graphic
 
 
+
+
+<h5 align="left">
+
+
+
+
+hi [wrio](https://github.com/WRlOTHESLEY) , [vi](https://github.com/Villyth)  , [machi](https://github.com/LotusNilotpala) :3 ! 
+</p>
+
+
