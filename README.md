@@ -11,10 +11,10 @@
 <p>
 
 <h4 align="center">
-$\textcolor{grey}{𝙊𝙍𝙋𝙃𝙀𝙐𝙎}$ㅤ ㅤhe ﾉ himㅤ ㅤ $\textcolor{grey}{POLISH}$
+$\textcolor{green}{𝙊𝙍𝙋𝙃𝙀𝙐𝙎}$ㅤ ㅤhe ﾉ himㅤ ㅤ $\textcolor{orange}{POLISH}$
 </h4> 
 <h5 align="center">
-<img src="https://64.media.tumblr.com/9c915f8219f8488d1f91dde32ec994d5/429ac985fc6194c7-bf/s640x960/673778bf5df7b0bcebe25ba2996f91bd8a933e1e.gifv"/>
+<img src="https://i.imgur.com/nXVSlzD.png"/>
 </h5>  
 <h4 align="center">
 
