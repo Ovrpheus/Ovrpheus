@@ -28,7 +28,7 @@ $\textcolor{green}{𝙊𝙍𝙋𝙃𝙀𝙐𝙎}$ㅤ ㅤhe ﾉ himㅤ ㅤ $\text
 <h5 align="center">
 </p>
 
-crd to [lavender](https://www.tumblr.com/lavendergalactic) for graphic
+crd to [briefpanic](https://www.tumblr.com/briefpanic) for graphic
 
 
 
