@@ -11,10 +11,10 @@
 <p>
 
 <h4 align="center">
-$\textcolor{green}{𝙊𝙍𝙋𝙃𝙀𝙐𝙎}$ㅤ ㅤhe ﾉ himㅤ ㅤ $\textcolor{orange}{POLISH}$
+$\textcolor{purple}{𝙊𝙍𝙋𝙃𝙀𝙐𝙎}$ㅤ ㅤhe ﾉ himㅤ ㅤ $\textcolor{pink}{POLISH}$
 </h4> 
 <h5 align="center">
-<img src="https://i.imgur.com/nXVSlzD.png"/>
+<img src="https://64.media.tumblr.com/a3eec1c7e81cc077a4163c524432c126/dc9d4daa3caa602a-ca/s640x960/bc6ab50ab2e8df1f5cb3a6b760ca26844c9e69a4.pnj"/>
 </h5>  
 <h4 align="center">
 
@@ -28,7 +28,7 @@ $\textcolor{green}{𝙊𝙍𝙋𝙃𝙀𝙐𝙎}$ㅤ ㅤhe ﾉ himㅤ ㅤ $\text
 <h5 align="center">
 </p>
 
-crd to [briefpanic](https://www.tumblr.com/briefpanic) for graphic
+crd to [mikosye](https://www.tumblr.com/mikosye/search/idv) for graphic
 
 
 
