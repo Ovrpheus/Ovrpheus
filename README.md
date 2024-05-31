@@ -29,7 +29,6 @@ $\textcolor{white}{𝙊𝙍𝙋𝙃𝙀𝙐𝙎}$ㅤ ㅤhe ﾉ himㅤ ㅤ $\text
 <h5 align="center">
 </p>
 
-crd to [mikosye](https://www.tumblr.com/mikosye/search/idv) for graphic
 
 
 
