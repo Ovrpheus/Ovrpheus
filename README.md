@@ -1,21 +1,12 @@
 ***
 <h5 align="center">
 
-[CERB & MISH CALLOUT](https://docs.google.com/document/d/1z4ZlR_uJhfT6QAgw-iDPfitZJCogg3m4H8ldjWhYBFU/edit?usp=sharing) 
-
-[HELPALESTINE](https://arab.org/click-to-help/palestine/)
+[CERB & MISH CALLOUT](https://docs.google.com/document/d/1z4ZlR_uJhfT6QAgw-iDPfitZJCogg3m4H8ldjWhYBFU/edit?usp=sharing) ㅤㅤ ㅤㅤ<img src="https://ouija.crd.co/assets/images/gallery34/f7401742.gif?v=b7df7a50"/> ㅤㅤ ㅤㅤ[HELPALESTINE](https://arab.org/click-to-help/palestine/)
 
 
-<h4 align="center">    
 
-<p>
-
-<h4 align="center">
-$\textcolor{white}{𝙊𝙍𝙋𝙃𝙀𝙐𝙎}$ㅤ ㅤhe ﾉ himㅤ ㅤ $\textcolor{grey}{POLISH}$
-</h4> 
 <h5 align="center">
-  graphic under construction :3
-<img src=""/>
+  <img src="https://media.discordapp.net/attachments/910049236903657494/1249365718701441166/Untitled225_20240609160740.png?ex=666709ff&is=6665b87f&hm=6bd25efc1d078f71a72f050b19138852983b835656209456bc20d7f44e2c1d0f&=&format=webp&quality=lossless"/>
 </h5>  
 <h4 align="center">
 
@@ -33,12 +24,5 @@ $\textcolor{white}{𝙊𝙍𝙋𝙃𝙀𝙐𝙎}$ㅤ ㅤhe ﾉ himㅤ ㅤ $\text
 
 
 
-<h5 align="left">
-
-
-
-
-hi [wrio](https://github.com/WRlOTHESLEY) , [vi](https://github.com/Villyth)  , [machi](https://github.com/LotusNilotpala) :3 ! 
-</p>
 
 
