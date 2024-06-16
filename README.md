@@ -1,8 +1,6 @@
 ***
 <h5 align="center">
   
-shiny on [github tierlist](https://rentry.co/github-tierlist) ++ on [ptranks](https://ptranks.straw.page/)
-  
 [CERB & MISH CALLOUT](https://docs.google.com/document/d/1z4ZlR_uJhfT6QAgw-iDPfitZJCogg3m4H8ldjWhYBFU/edit?usp=sharing) ㅤㅤ ㅤㅤ<img src="https://ouija.crd.co/assets/images/gallery34/f7401742.gif?v=b7df7a50"/> ㅤㅤ ㅤㅤ[HELPALESTINE](https://arab.org/click-to-help/palestine/)
 
 
