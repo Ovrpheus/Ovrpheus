@@ -6,7 +6,7 @@
 
 
 <h5 align="center">
-  <img src="https://media.discordapp.net/attachments/910049236903657494/1249365718701441166/Untitled225_20240609160740.png?ex=666709ff&is=6665b87f&hm=6bd25efc1d078f71a72f050b19138852983b835656209456bc20d7f44e2c1d0f&=&format=webp&quality=lossless"/>
+  <img src="https://i.imgur.com/ZtwkyfA.png"/>
 </h5>  
 <h4 align="center">
 
