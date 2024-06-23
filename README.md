@@ -9,7 +9,7 @@
 
 
 <h5 align="center">
-ㅤㅤㅤ<img src="https://i.imgur.com/o6cqza1.png"/>
+ㅤㅤㅤ<img src="https://i.imgur.com/eZJjWVL.png"/>
 </h5>  
 <h4 align="center">
 
