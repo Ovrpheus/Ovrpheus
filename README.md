@@ -15,7 +15,7 @@
 
 <img src="https://files.catbox.moe/by9ckc.png"/>
 
-[𝗥𝗘𝗡𝗧𝗥𝗬](https://rentry.co/orph)ㅤㅤㅤㅤ ㅤㅤ[𝘼𝙏𝘼𝘽𝙊𝙊𝙆](https://ovrpheus.atabook.org/) / [𝙍𝙀𝙏𝙍𝙊𝙎𝙋𝙍𝙄𝙉𝙂](https://retrospring.net/@Ovrpheus)ㅤㅤㅤㅤ ㅤㅤㅤ[𝗨𝗥𝗟𝗦](https://rentry.co/orphsurls)
+[𝗥𝗘𝗡𝗧𝗥𝗬](https://rentry.co/orph)ㅤㅤㅤㅤ ㅤㅤ[𝘼𝙏𝘼𝘽𝙊𝙊𝙆](https://ovrpheus.atabook.org/) / [𝙍𝙀𝙏𝙍𝙊𝙎𝙋𝙍𝙄𝙉𝙂](https://retrospring.net/@Ovrpheus)ㅤㅤㅤㅤ ㅤㅤㅤ[𝗟𝙄𝙉𝙆𝗦](https://rentry.co/ovrpheus)
 </h4> 
 
 ***
