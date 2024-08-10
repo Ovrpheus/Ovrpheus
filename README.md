@@ -6,7 +6,7 @@
   
 
   
-[![](https://i.imgur.com/AAX7GSv.png)](https://open.spotify.com/track/1wtqANUwRLMKPogJt1IPKT?si=5dda1b3fd9024e20) ㅤ[![](https://64.media.tumblr.com/cae14ed7f5cd870310d9b7c10c7c41e8/5d11f03c6cef5499-e3/s100x200/6a00aba92d3da8b858124cefd610fcf66c376c33.pnj)](https://open.spotify.com/track/1wtqANUwRLMKPogJt1IPKT?si=5dda1b3fd9024e20) ㅤㅤ[![](https://i.imgur.com/hc3ivGs.png)](https://open.spotify.com/track/1wtqANUwRLMKPogJt1IPKT?si=5dda1b3fd9024e20)
+[![](https://i.imgur.com/AAX7GSv.png)](https://open.spotify.com/track/1wtqANUwRLMKPogJt1IPKT?si=5dda1b3fd9024e20) ㅤ[![](https://64.media.tumblr.com/cae14ed7f5cd870310d9b7c10c7c41e8/5d11f03c6cef5499-e3/s100x200/6a00aba92d3da8b858124cefd610fcf66c376c33.pnj)](https://open.spotify.com/track/1wtqANUwRLMKPogJt1IPKT?si=5dda1b3fd9024e20) ㅤㅤ[![](https://i.imgur.com/ztdqDQu.png)](https://open.spotify.com/track/1wtqANUwRLMKPogJt1IPKT?si=5dda1b3fd9024e20)
 
 ⠀<img src="https://i.imgur.com/A4sNBi3.png"/>
 ⠀
