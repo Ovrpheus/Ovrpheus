@@ -5,4 +5,4 @@ semi active on pony town i fw my pt friends though, direct contact w me thru dis
 I LOVE MY GLORIOUS KING MURRO FROM THE HIT GAME IDENTITY V
 also all art cr goes to avel @bublykzsyrom on twt THEIR ORPHEUS ART ON MY FUCKING KNEES
 
-ㅤ ㅤ<img src="https://pbs.twimg.com/media/GczgowebcAI62ol?format=png&name=small"/> 
+<img src="https://pbs.twimg.com/media/GczgowebcAI62ol?format=png&name=small"/> 
