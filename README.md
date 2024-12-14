@@ -2,6 +2,6 @@
 
 semi active on pony town i fw my pt friends though, direct contact w me thru discord only
 
-I LOVE MY GLORIOUS KING MURRO FROM THE HIT GAME IDENTITY V
+idv, kec, jovial and rrd obsessed now perhaps and no u guys dont like anyone from rrd more than me
 
-<img src="https://files.catbox.moe/73t3mc.jpg"/> 
+<img src="https://files.catbox.moe/keaoh4.webp"/> 
