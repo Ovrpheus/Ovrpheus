@@ -4,4 +4,6 @@ semi active on pony town i fw my pt friends though, direct contact w me thru dis
 
 idv, kec, jovial and rrd obsessed now perhaps and no u guys dont like anyone from rrd more than me
 
-<img src="https://files.catbox.moe/keaoh4.webp"/> 
+<img src="https://files.catbox.moe/q22i9i.jpg"/> 
+YURIYURIYURIYURIYURIYURIYURIYURIYURIYURIYURIYURIYURIYURI
+WENDEMMA YURI
