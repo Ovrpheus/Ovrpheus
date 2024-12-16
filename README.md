@@ -7,3 +7,8 @@ idv, kec, jovial and rrd obsessed now perhaps and no u guys dont like anyone fro
 <img src="https://files.catbox.moe/q22i9i.jpg"/> 
 YURIYURIYURIYURIYURIYURIYURIYURIYURIYURIYURIYURIYURIYURI
 WENDEMMA YURI
+
+<img src="https://files.catbox.moe/2jnh5y.jpg"/>
+
+<img src="https://files.catbox.moe/2ijovh.webp"/>
+1 day difference and now they got me orpheus angst Okkk ok I LOVE HIM SO MCUH hes so me
