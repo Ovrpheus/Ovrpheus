@@ -9,7 +9,8 @@ YURIYURIYURIYURIYURIYURIYURIYURIYURIYURIYURIYURIYURIYURI
 WENDEMMA YURI
 
 
-https://github.com/user-attachments/assets/129fa60b-18e2-4374-ad51-0f59ae722b7d
+https://github.com/user-attachments/assets/864c16d0-3296-4ceb-9214-b0a21078f10c
+
 
 
 <img src="https://files.catbox.moe/2jnh5y.jpg"/>
