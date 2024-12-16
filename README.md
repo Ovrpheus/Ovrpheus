@@ -8,11 +8,12 @@ idv, kec, jovial and rrd obsessed now perhaps and no u guys dont like anyone fro
 YURIYURIYURIYURIYURIYURIYURIYURIYURIYURIYURIYURIYURIYURI
 WENDEMMA YURI
 
+NEVER ASK OVRPHEUS WHAT HAPPENED TO IDV ORPHEUS ON 16TH DECEMBER 2024. this is what I'm ending the year with.
 
 https://github.com/user-attachments/assets/864c16d0-3296-4ceb-9214-b0a21078f10c
 
 
-
+<img src="https://files.catbox.moe/90rhd3.jpg"/>
 <img src="https://files.catbox.moe/2jnh5y.jpg"/>
 <img src="https://files.catbox.moe/2ijovh.webp"/>
 <img src="https://files.catbox.moe/wkspby.jpg"/>
