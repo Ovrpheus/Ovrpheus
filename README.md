@@ -8,6 +8,10 @@ idv, kec, jovial and rrd obsessed now perhaps and no u guys dont like anyone fro
 YURIYURIYURIYURIYURIYURIYURIYURIYURIYURIYURIYURIYURIYURI
 WENDEMMA YURI
 
+
+https://github.com/user-attachments/assets/129fa60b-18e2-4374-ad51-0f59ae722b7d
+
+
 <img src="https://files.catbox.moe/2jnh5y.jpg"/>
 <img src="https://files.catbox.moe/2ijovh.webp"/>
 <img src="https://files.catbox.moe/wkspby.jpg"/>
