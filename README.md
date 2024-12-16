@@ -11,4 +11,6 @@ WENDEMMA YURI
 <img src="https://files.catbox.moe/2jnh5y.jpg"/>
 
 <img src="https://files.catbox.moe/2ijovh.webp"/>
-1 day difference and now they got me orpheus angst Okkk ok I LOVE HIM SO MCUH hes so me
+
+<img src="https://files.catbox.moe/wkspby.jpg"/>
+Novelist idv they could Never make me hate you i totally support the Orpheus coa angst (I do not) hes so cute i love him so mcuhh😭😭 PLZ KILL 
