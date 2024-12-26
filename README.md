@@ -1,6 +1,6 @@
 [rentry](https://rentry.co/orph) [atabook](https://ovrpheus.atabook.org/) [easy2read](https://rentry.co/novoamor) [directory](https://rentry.co/ovrpheus)
 
-semi active on pony town i fw my pt friends though, direct contact w me thru discord only
+btw i gave up on readme maybe MAYBE ill do an aot theme Ok but thats under development i need to prepare mentally *cry
 
 idv, kec, jovial and rrd obsessed now perhaps and no u guys dont like anyone from rrd more than me
 
