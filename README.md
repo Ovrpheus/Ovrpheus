@@ -2,8 +2,7 @@
 
 btw i gave up on readme maybe MAYBE ill do an aot theme Ok but thats under development i need to prepare mentally *cry
 
-idv, kec, jovial and rrd obsessed now perhaps and no u guys dont like anyone from rrd more than me
-
+idv, kec, jovial, rrd, aot obsessed feel free to hit me up for a chat about those plz? :)
 <img src="https://files.catbox.moe/tof686.jpg"/> 
 BRO LOOK AT HIM DDUDUDUDEEEE HIS MODEL IN GAME LOOKS SO GOOD I SWEAR TO GOD ILL BE CRYING JUMPING AROUND WHEN I GET THIS SKIN IM NOT EVEN JOKING ATP HIS INTRO ANIMATION AND THE MEMORY FLASHBACK PLZ LET HIM REST HE LOOKS SO 😭😭😭😭😭
 
