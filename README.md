@@ -3,8 +3,7 @@
 
 
 
-
-https://github.com/user-attachments/assets/6015b6b6-a131-42e4-96a3-5d10669a3215
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=gehh58e8f0xpouhgo6rd3sbmt&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=false&bar_color=ffffff&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
 
 
