@@ -3,7 +3,7 @@
 
 ㅤ<div align="center">
 
-i ♡ my friends, see in following
+i ♡ my friends, see in following + i follow oomfs and friends of friends too
 
 https://github.com/user-attachments/assets/4d8d51e2-a4cd-4c62-b021-d5de5eb8e33c
 
