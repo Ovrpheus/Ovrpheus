@@ -5,6 +5,7 @@
 
 i ♡ my friends, see in following
 <br>i follow oomfs and fof's too (if we ever spoke)
+<br> yo check my [rentry](https://rentry.co/thehungergames) yo check it yo check check yo
 
 https://github.com/user-attachments/assets/4d8d51e2-a4cd-4c62-b021-d5de5eb8e33c
 
